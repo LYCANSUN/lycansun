@@ -54,6 +54,7 @@ the homepage for all my strawpages. click any of the links to learn more about m
 
 
 
+![](https://github.com/user-attachments/assets/6f5ece66-7b58-4fc6-812d-19f7f630377a)
 ![](https://64.media.tumblr.com/52143df5bdf32e3597e5134006d391f4/dae002cc870bea3a-a0/s250x400/6382af7ffc589a1670b7733960061f76da787f3f.pnj)
 ![](https://64.media.tumblr.com/b2c5138face1f5d2b5f132e755d3225e/058ee9e3213d3f4f-a7/s400x600/027d1b924d8df8f46e822c6343280c5546b9a388.gifv)
 ![](https://64.media.tumblr.com/4f866786faa9512baed785e07392213c/8dbc5a71644b2f72-c5/s250x400/d24649dd89ede43096627e87a857dafc42c60f4b.gifv)
