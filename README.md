@@ -43,9 +43,24 @@ the homepage for all my strawpages. click any of the links to learn more about m
 ![](https://64.media.tumblr.com/340b49db030fd35a98ff56f609b7f0ea/e8967fbfe5d71406-dc/s250x400/77d92dadf6cf57b350f1ee769063d109340e0041.gifv)
 ![](https://64.media.tumblr.com/7b0abcda669cd7b661ff0ba8d55601b7/284badf19e96f58f-c1/s250x400/db047f851428a3914b33ed42addff2f5ab60a923.gifv)
 
+![](https://64.media.tumblr.com/28e1ebdac40c595bd5b5a1ad1816a55a/225befbfd014af92-6e/s250x400/c7e6b6479da9b23c29710bb8a0904e5ed3e26ad6.gifv)
+![](https://64.media.tumblr.com/2ed4c42f72b714bca6e7a65177aa83d9/9f80a008abc6a161-cf/s250x400/5f4a27fe97d2c4d9f8c21e8bde9c71847dc938b1.gifv)
+![](https://64.media.tumblr.com/4966dacc3a478f5cceab20f309e69ff4/6b6c9cf32351e81a-05/s250x400/8569fce3bdaff6f520322c23ad07bf7466857b73.gifv)
+![](https://64.media.tumblr.com/90898dc2ca6ad976c1db05c4d9b2b4d8/c93a0ba43067d516-c8/s250x400/7e4bc7e3e3cde1b43a7662b0f589eac4fd351100.gifv)
+
+![](https://64.media.tumblr.com/c5d6404c46d4eb9091f59d0c59dcdc2c/6cd634839098f939-3b/s250x400/dcd8c06808601b48ddf392a9288398339ade1dad.gifv)
+![](https://64.media.tumblr.com/51b534bb95bc924cbd600373934ac942/9878d76def55ec3a-70/s250x400/5c2df059dbf604af3f8b82b3e1b3d2edffc11e32.webp)
+![](https://64.media.tumblr.com/fe816e9b0ccd6369573bf4d6446b30ae/09881a6f9115ff7a-5c/s250x400/c7c23f2d2a09b6f83be0997011c833d4a2bcf0f0.gifv)
+![](https://64.media.tumblr.com/f8ed9b9e9a33039abb5315197c4241d0/0812dc0300de9634-1a/s250x400/665513e8ef322990f815ea0d95cef1f8ff91d655.gifv)
+
+![](https://64.media.tumblr.com/e015026a64ac920dc0d1c8167420377e/06c8f3f7fec6aa6f-19/s250x400/f0f91a3c3a3a191d3580caeade090633222b7640.gifv)
+![](https://64.media.tumblr.com/218c56de7a4c03301d390d995bc3c85b/06c8f3f7fec6aa6f-77/s250x400/c2a074684d30e5342f49eefb47803cb2bac8a3cd.gifv)
+
+
 ![](https://64.media.tumblr.com/06463b8520305b46f78890502092a655/284badf19e96f58f-05/s250x400/922b4ee669661f5e5a16fb1ea4a33b697a68c506.gifv)
 ![](https://64.media.tumblr.com/399707d70fb0993a8dad5d9650679e0f/87c9b7326d951d48-45/s250x400/86573b46b04643d5bee64798ff248297fd8a6cdd.gifv)
 ![](https://64.media.tumblr.com/e9ae9b0915af35798597ccb236f25369/87c9b7326d951d48-61/s250x400/a5b25776fa6c9d65594338da1f930c3b813a7ebf.gifv)
+![](https://64.media.tumblr.com/27ab06431863079d6e0598ec83810ad4/ab084ec4244aeedc-96/s250x400/3449ebf9ea36b532aad242aefd0307375ebfcf3d.gifv)
 
 
 ![](https://64.media.tumblr.com/9c55639f695a27a98bc2c42986194fed/9ff098d4b0a1dca6-e4/s250x400/e9e8710569aae1383ecee322be4fc29dea600869.gifv)
@@ -62,6 +77,7 @@ the homepage for all my strawpages. click any of the links to learn more about m
 ![](https://64.media.tumblr.com/6a2061bc6af283af806706ba4ee399f8/5b774ffceac4e756-01/s100x200/3d7b6ac5aa12dfa2f14243c6c2fe0b095f6ee774.pnj)
 
 
+![](https://64.media.tumblr.com/bc2c763abeb1860cb2f402045840d5c0/e430bf3df8f8973e-fa/s640x960/7a6e6819cd39f8a2604dd263527f4da41a324b05.pnj)
 
 
 ![](https://github.com/user-attachments/assets/6f5ece66-7b58-4fc6-812d-19f7f630377a)
@@ -69,5 +85,8 @@ the homepage for all my strawpages. click any of the links to learn more about m
 ![](https://64.media.tumblr.com/b2c5138face1f5d2b5f132e755d3225e/058ee9e3213d3f4f-a7/s400x600/027d1b924d8df8f46e822c6343280c5546b9a388.gifv)
 ![](https://64.media.tumblr.com/4f866786faa9512baed785e07392213c/8dbc5a71644b2f72-c5/s250x400/d24649dd89ede43096627e87a857dafc42c60f4b.gifv)
 ![](https://64.media.tumblr.com/7f42b733ffd561eef626103e76e171e5/08d8aabf849367d9-a5/s75x75_c1/8f4882cedff6bff1298606b1f9682dd32da698b7.gifv)
+![](![](https://64.media.tumblr.com/603280bb25174fe4ab92aa165ef7d0a8/7bba08dae7e595f2-f2/s100x200/2ec82844266ce1fad1b1fea182f9dba474fe8d90.gifv))
+![](https://64.media.tumblr.com/3c5ea350b3c758e3d9d714ea5cf8b324/6644ab2a224c6f45-55/s100x200/306a351e0e8f982b8bd143084d2467257465b47a.gifv)
+
 
 ![](https://64.media.tumblr.com/a72a8f994be59077f5fe9663a731929c/284badf19e96f58f-25/s250x400/dd30cca138028b05a25372b6e591238239e88e8f.pnj)
