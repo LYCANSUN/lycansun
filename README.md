@@ -6,6 +6,13 @@ the homepage for all my strawpages. click any of the links to learn more about m
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ━━━━ ⋆ ━━━━
 
+ㅤㅤㅤ[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=e4nqrpgv150md9ke5g8a25rup&cover_image=true&theme=spotify-embed&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=db0000&bar_color_cover=false&mode=dark)](https://spotify-github-profile.kittinanx.com/api/view?uid=e4nqrpgv150md9ke5g8a25rup&redirect=true)
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=lycansun&color=red&label=‎ㅤ𐂯‎ㅤ‎ )
+
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ🢓 🢓 🢓 🢓
+
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤBOOM BLINKIE COLLECTION GO!!!!!!!!!!!!
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ🢓 🢓 🢓 🢓
@@ -43,5 +50,3 @@ the homepage for all my strawpages. click any of the links to learn more about m
 ![](https://64.media.tumblr.com/52143df5bdf32e3597e5134006d391f4/dae002cc870bea3a-a0/s250x400/6382af7ffc589a1670b7733960061f76da787f3f.pnj)
 ![](https://64.media.tumblr.com/b2c5138face1f5d2b5f132e755d3225e/058ee9e3213d3f4f-a7/s400x600/027d1b924d8df8f46e822c6343280c5546b9a388.gifv)
 ![](https://64.media.tumblr.com/4f866786faa9512baed785e07392213c/8dbc5a71644b2f72-c5/s250x400/d24649dd89ede43096627e87a857dafc42c60f4b.gifv)
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=lycansun&color=red&label=‎ㅤ𐂯‎ㅤ‎ )
